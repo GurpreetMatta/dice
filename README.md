@@ -1,0 +1,2 @@
+# die
+FREE TO USE
